@@ -12,8 +12,7 @@
 
 
 
-[![Scr-Cap-2020-06-10-014641.png](https://i.postimg.cc/wBf4GYmj/Scr-Cap-2020-06-10-014641.png)](https://postimg.cc/rd49DbjB)
-
+[![Scr-Cap-2020-06-10-014641.png](https://i.postimg.cc/VNqLq4rg/Scr-Cap-2020-06-10-014641.png)](https://postimg.cc/kV5m9QyR)
 
 
 
