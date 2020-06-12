@@ -20,9 +20,10 @@
 ---
 （由于该作案者今天凌晨没有直播，并且有网友对此文可信度存疑，我决定发布视频。
 关于视频，我想过对受害人的声音进行变声，但放弃，只对受害人画面进行黑白和模糊处理，尽量隐去可用来辨认的信息，虽然切掉了后面17分钟的主要侵害部分，此公开版本视频的后部分依然请谨慎查看。本文和视频可转载，但请尽量不做扭曲）
-## 2020年6月11日13：00 添加视频， 网盘 https://1drv.ms/v/s!AgcPRARWs5dhanNtcmLOmNzDMRg?e=VmMMl6  
-(Mega似乎已经受限)https://mega.nz/file/nDIFnCaI#487PZHcX24lMbVMMOJpHcJtXAOzJQ6cux70B8xTxBjw
 ## 在线 https://vimeo.com/427986290
+网盘有流量限制，且意义已经不大，不再更新，直接用上面的在线版就可以了。 https://1drv.ms/v/s!AgcPRARWs5dhanNtcmLOmNzDMRg?e=VmMMl6  
+ https://mega.nz/file/nDIFnCaI#487PZHcX24lMbVMMOJpHcJtXAOzJQ6cux70B8xTxBjw
+
 ---
 
 
